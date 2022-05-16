@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ValentinaCallero
 - 👀 I’m interested in accountability, finance world and marketing
 - 🌱 I’m currently learning accountability and Administration of bussiness
-- 💞️ I’m looking to collaborate on jobs that help me gaining experience, I'm proactive and easygoing to work with.
+- 💞️ I’m looking to collaborate on jobs that help me gaining experience, I'm proactive, easygoing, and helpful
 - 📫 How to reach me: mail: valentinacallero99@gmail.con
 
 <!---
